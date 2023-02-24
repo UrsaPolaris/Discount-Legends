@@ -1,1 +1,1 @@
-Discount Legends
+Stop being bullies.
